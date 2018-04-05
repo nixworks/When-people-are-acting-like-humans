@@ -1,1 +1,1 @@
-# When-people-are-acting-like-humans
+# When people are acting like humans
